@@ -1,3 +1,6 @@
+***Sonic the Hedgehog Area: Watch out for @ZeldaArtemis -- you don't want to be around  this person for your mentality. Pokemon  and CP kink-havers DNI ever LOOOLLLLL !!!***
+
+
 Find out the rest about me on my Patreon: 
 www.patreon.com/kittspi
 
