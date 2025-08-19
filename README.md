@@ -23,8 +23,6 @@ My name's Kitt(spi)/Korryn/Kloudy
 
 I try to match one another's personality so I  can attempt to have them feel comfortable with me. This applies to vibe of places and friend groups. 
 
-I am very self-insecure at the moment, so I apologize in advance.
-
 --------
 
 🌈 -- My skin/morph style(s) usually has a rainbow theme to it, unless the colors are difficult to blend otherwise. If you see someone that appears to be "Skittle-fied", you may have spot the one and only Kittspi (me 😊).
