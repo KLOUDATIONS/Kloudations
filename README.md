@@ -1,4 +1,4 @@
-***Sonic the Hedgehog Area: Watch out for @NostalgicSplatterling -- you don't want to be around  this person. Pokemon and CP kink-havers DNI ever LOOOLLLLL !!!***
+***Watch out for @NostalgicSplatterling -- you don't want to be around this person. Pokemon and CP kink haver.
 
 
 Find out the rest about me on my Patreon: 
